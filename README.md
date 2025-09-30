@@ -1,1 +1,0 @@
-# vadim-I-afk.github.io
